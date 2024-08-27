@@ -1,1 +1,1 @@
-# Plantinha-Terap-utica
+# Plantinha-Terapeutica
